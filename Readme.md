@@ -26,4 +26,5 @@ fast asking questions about me.
 
 - What are you? - Azerbaijan Turk
 
+Find also in here: http://faq.eljan.live/
 
